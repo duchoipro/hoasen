@@ -10,4 +10,10 @@ Chú Lăng nghiêm có loại bỏ tham dục không?
   <source media="(prefers-color-scheme: light)" srcset="https://user-images.githubusercontent.com/25423296/163456779-a8556205-d0a5-45e2-ac17-42d089e3c3f8.png">
   <img alt="Shows an illustrated sun in light mode and a moon with stars in dark mode." src="https://i.pinimg.com/736x/ec/c1/e0/ecc1e0952d72aa260d1901eefbe4c899.jpg">
 </picture>
-Trong thiền môn, tín niệm trì tụng thần chú Lăng nghiêm sẽ hóa giải ái nghiệp, phá tan các chướng ngại trên đường tu khá phổ biến.
+*Trong thiền môn, tín niệm trì tụng thần chú Lăng nghiêm sẽ hóa giải ái nghiệp, phá tan các chướng ngại trên đường tu khá phổ biến.*
+
+Nếu thường trì tụng chú này thì sẽ tiêu trừ nghiệp chướng trong bao đời tiền kiếp. Đó là diệu dụng của chú Lăng Nghiêm.
+
+Duyên khởi từ sự tích nàng Ma-đăng-già dùng tà thuật khiến cho Tôn giả A-nan mất tự chủ, mê muội đến độ suýt mất phạm hạnh. Nhờ Phật phương tiện bảo Bồ-tát Văn Thù tuyên thuyết thần chú giúp A-nan thoát nạn ma nữ (Kinh Thủ Lăng nghiêm). Sau đó, Phật khai ngộ về chơn tâm khiến cho A-nan sạch hết trần cấu mê lầm, tu tập đạt đến giác ngộ.
+
+Câu chuyện Kinh Lăng Nghiêm
