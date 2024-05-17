@@ -19,6 +19,8 @@ Trong thiền môn, tín niệm trì tụng thần chú Lăng nghiêm sẽ hóa 
 
 Tất cả mười phương chư Phật đều xuất sinh từ thần chú Lăng Nghiêm. Mười phương các Đức Như Lai đều nương chú này mà thành tựu đạo vô thượng chánh đẳng chánh giác. Các ngài ứng thân nhiều như số hạt bụi của các cõi nước để chuyển bánh xe pháp, giáo hóa chúng sinh, thọ ký cho chúng sinh trong mười phương, cứu độ chúng sinh thoát khổ, khiến cho tất cả chúng sinh đại – tiểu – quyền thừa đều được giải thoát. Tất cả các Ngài đều nương vào oai lực của tâm chú Lăng Nghiêm. Nếu muốn chứng đắc quả A La Hán thì phải tụng chú này thì mới tránh khỏi ma sự.
 
-- [x] # Tài liệu được dẫn từ các nguồn.
+
+# Tài liệu được dẫn từ các nguồn.
 - [ ] https://phatgiao.org.vn/than-chu-lang-nghiem-ban-tieng-viet-loi-ich-to-lon-khi-tri-chu-than-chu-lang-nghiem-d45329.html
 - [ ] https://thuvienhoasen.org/a28353/chu-lang-nghiem-ke-va-giang-giai
+- [ ] https://vanphatthanh.org/chu-lang-nghiem/
