@@ -18,3 +18,7 @@ Duyên khởi từ sự tích nàng Ma-đăng-già dùng tà thuật khiến cho
 Trong thiền môn, tín niệm trì tụng thần chú Lăng nghiêm sẽ hóa giải ái nghiệp, phá tan các chướng ngại trên đường tu khá phổ biến. Tuy vậy, nếu diễn dịch thành “Người trì chú Lăng nghiêm thì không thể có vợ. Hoặc có vợ rồi mà trì chú này cũng sẽ dẫn tới ly dị” như một loại bùa chú khiến gia đình ly tán là một sai lạc nghiêm trọng, vừa không đúng với ý kinh lại vừa không phù hợp với tính nhân bản của Phật giáo.
 
 Tất cả mười phương chư Phật đều xuất sinh từ thần chú Lăng Nghiêm. Mười phương các Đức Như Lai đều nương chú này mà thành tựu đạo vô thượng chánh đẳng chánh giác. Các ngài ứng thân nhiều như số hạt bụi của các cõi nước để chuyển bánh xe pháp, giáo hóa chúng sinh, thọ ký cho chúng sinh trong mười phương, cứu độ chúng sinh thoát khổ, khiến cho tất cả chúng sinh đại – tiểu – quyền thừa đều được giải thoát. Tất cả các Ngài đều nương vào oai lực của tâm chú Lăng Nghiêm. Nếu muốn chứng đắc quả A La Hán thì phải tụng chú này thì mới tránh khỏi ma sự.
+
+- [x] #739
+- [ ] https://github.com/octo-org/octo-repo/issues/740
+- [ ] Add delight to the experience when all tasks are complete :tada:
