@@ -10,10 +10,11 @@ Chú Lăng nghiêm có loại bỏ tham dục không?
   <source media="(prefers-color-scheme: light)" srcset="https://user-images.githubusercontent.com/25423296/163456779-a8556205-d0a5-45e2-ac17-42d089e3c3f8.png">
   <img alt="Shows an illustrated sun in light mode and a moon with stars in dark mode." src="https://i.pinimg.com/736x/ec/c1/e0/ecc1e0952d72aa260d1901eefbe4c899.jpg">
 </picture>
-*_Trong thiền môn, tín niệm trì tụng thần chú Lăng nghiêm sẽ hóa giải ái nghiệp, phá tan các chướng ngại trên đường tu khá phổ biến_*
 
-Nếu thường trì tụng chú này thì sẽ tiêu trừ nghiệp chướng trong bao đời tiền kiếp. Đó là diệu dụng của chú Lăng Nghiêm.
-
+# Câu chuyện Kinh Lăng Nghiêm
 Duyên khởi từ sự tích nàng Ma-đăng-già dùng tà thuật khiến cho Tôn giả A-nan mất tự chủ, mê muội đến độ suýt mất phạm hạnh. Nhờ Phật phương tiện bảo Bồ-tát Văn Thù tuyên thuyết thần chú giúp A-nan thoát nạn ma nữ (Kinh Thủ Lăng nghiêm). Sau đó, Phật khai ngộ về chơn tâm khiến cho A-nan sạch hết trần cấu mê lầm, tu tập đạt đến giác ngộ.
 
-Câu chuyện Kinh Lăng Nghiêm
+# Comment
+Trong thiền môn, tín niệm trì tụng thần chú Lăng nghiêm sẽ hóa giải ái nghiệp, phá tan các chướng ngại trên đường tu khá phổ biến. Tuy vậy, nếu diễn dịch thành “Người trì chú Lăng nghiêm thì không thể có vợ. Hoặc có vợ rồi mà trì chú này cũng sẽ dẫn tới ly dị” như một loại bùa chú khiến gia đình ly tán là một sai lạc nghiêm trọng, vừa không đúng với ý kinh lại vừa không phù hợp với tính nhân bản của Phật giáo.
+
+Tất cả mười phương chư Phật đều xuất sinh từ thần chú Lăng Nghiêm. Mười phương các Đức Như Lai đều nương chú này mà thành tựu đạo vô thượng chánh đẳng chánh giác. Các ngài ứng thân nhiều như số hạt bụi của các cõi nước để chuyển bánh xe pháp, giáo hóa chúng sinh, thọ ký cho chúng sinh trong mười phương, cứu độ chúng sinh thoát khổ, khiến cho tất cả chúng sinh đại – tiểu – quyền thừa đều được giải thoát. Tất cả các Ngài đều nương vào oai lực của tâm chú Lăng Nghiêm. Nếu muốn chứng đắc quả A La Hán thì phải tụng chú này thì mới tránh khỏi ma sự.
